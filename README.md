@@ -3,7 +3,6 @@
 - 💞️ I’m looking to collaborate on my projects on HTML, CSS and Javascript
 - 📫 How to reach me
 - esmaeelzadehrayan12@outlook.com
-- +989366406312
 - 😄 Pronouns:
 - Rayan Esmaeelzadeh
 - ⚡ Fun fact:
